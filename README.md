@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @pahabayram
 - 👀 I’m interested in car
 - 🌱 I’m currently learning in colledg
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Ufa
